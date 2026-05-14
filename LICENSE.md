@@ -1,4 +1,4 @@
-# 
+# new Descript for macOS Template | noise-reduction + slow-motion offers the most advanced Descript for macOS template, with noise-reduction and slow-motion. Ideal for professional
 
 
 
